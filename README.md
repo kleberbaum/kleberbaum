@@ -1,5 +1,5 @@
 
-<img align="left" alt="Aichnerc GitHub stats" src="https://engine.snek.at/media/original_images/old_3D_cal_GIF.gif" />
+<img align="center" alt="Aichnerc GitHub stats" src="https://engine.snek.at/media/original_images/old_3D_cal_GIF.gif" />
 <!--
 **kleberbaum/kleberbaum** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 ### Hi there 👋
