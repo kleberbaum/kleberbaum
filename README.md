@@ -1,8 +1,8 @@
-### Hi there 👋
 
+<img align="left" alt="Aichnerc GitHub stats" src="https://engine.snek.at/media/original_images/old_3D_cal_GIF.gif" />
 <!--
 **kleberbaum/kleberbaum** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+### Hi there 👋
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
