@@ -3,8 +3,6 @@
 - 🔭 I’m currently working on SNEK
 - 👯 I’m looking to collaborate with other coding enthusiasts
 
- ![visitors](https://visitor-badge.laobi.icu/badge?page_id=kleberbaum.kleberbaum)
-
 <img align="center" alt="Aichnerc GitHub stats" src="https://engine.snek.at/media/original_images/old_3D_cal_GIF.gif" />
 
 <br />
