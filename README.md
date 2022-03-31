@@ -31,6 +31,7 @@
 [instagram]: https://www.instagram.com/kleberbaum
 [linkedin]: https://www.linkedin.com/in/florian-k-45613113b
 
+[Thesis_SNEK.pdf](https://github.com/kleberbaum/kleberbaum/files/8387276/Thesis_SNEK.pdf)
 <!--
 **kleberbaum/kleberbaum** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 ### Hi there 👋
