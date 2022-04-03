@@ -30,7 +30,7 @@
 [website]: https://www.erebos.xyz
 [instagram]: https://www.instagram.com/kleberbaum
 [linkedin]: https://www.linkedin.com/in/florian-k-45613113b
-[discussion page]: https://github.com/vumdao/vumdao/discussions/categories/ama-ask-me-anything
+[discussion page]: https://github.com/kleberbaum/kleberbaum/discussions/categories/ama-ask-me-anything
 
 <!-- [Thesis_SNEK.pdf](https://github.com/kleberbaum/kleberbaum/files/8387276/Thesis_SNEK.pdf) -->
 
