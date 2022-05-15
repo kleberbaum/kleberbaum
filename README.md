@@ -241,5 +241,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 [cv.pdf](https://github.com/kleberbaum/kleberbaum/files/8694992/cv.pdf)
+[cv_kleber.pdf](https://github.com/kleberbaum/kleberbaum/files/8695009/cv_kleber.pdf)
 
 -->
