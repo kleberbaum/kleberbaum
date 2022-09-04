@@ -35,7 +35,7 @@
 <!-- [Thesis_SNEK.pdf](https://github.com/kleberbaum/kleberbaum/files/8387276/Thesis_SNEK.pdf) -->
 
 
-<h1 align="center">Hi 👋, I'm Florian Kleber</h1>
+<h1 align="center">Hi 👋, I'm Florian</h1>
 <!-- <h2 align="center"><b>🚀 Awesome Devops | AWS Community Builder | AWS SA || ☁️ CloudOpz ☁️</b></h2> -->
 
 
