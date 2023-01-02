@@ -59,6 +59,27 @@
 
 ---
 
+> I think that I shall never see
+> A graph more lovely than a tree.
+> 
+> A tree whose crucial property
+> Is loo-free connectivity.
+> 
+> A tree which must be sure to span
+> So packets can reach every LAN.
+> 
+> First the Root must be selected.
+> By ID it is elected.
+> 
+> Least cost paths from Root are traced.
+> In the tree paths are placed.
+> 
+> A mesh is made by folks like me.
+> Then bridges find a spanning tree.
+
+Source: Radia Perlman. "An Algorithm for Distributed Computation of a Spanning Tree in an Extended LAN". ACM
+SIGCOMM Computer Communication Review 15 (4): 44–53
+
 <h2 align="left"><b>Connect with me:</b></h2>
 <p align="left">
 
