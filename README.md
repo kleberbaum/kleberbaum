@@ -65,7 +65,6 @@
 <br/> 
 
 ---
-
 > I think that I shall never see <br/> 
 > A graph more lovely than a tree.
 > 
@@ -83,8 +82,9 @@
 > 
 > A mesh is made by folks like me. <br/> 
 > Then bridges find a spanning tree.
+> [^1]
 
-Source: Radia Perlman. "An Algorithm for Distributed Computation of a Spanning Tree in an Extended LAN". ACM
+[^1]: Radia Perlman. "An Algorithm for Distributed Computation of a Spanning Tree in an Extended LAN". ACM
 SIGCOMM Computer Communication Review 15 (4): 44–53
 
 <h2 align="left"><b>Connect with me:</b></h2>
