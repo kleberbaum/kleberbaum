@@ -48,7 +48,7 @@ I was irrevocably drawn to her, like a moth drawn to the flame. It was dangerous
 
 As dangerous and intoxicating as she was, I was ready to brave the flames, for the promise of warmth and light was worth the risk of the inevitable burn. Stammering a reply, I realized her presence represented a beacon in my existential despair, maybe a purpose. [^1]
 
-As days morphed into weeks, Helena's luminescence illuminated my life, casting away shadows of melancholy. Our paths began to intertwine in the most unexpected ways, the most surprising revelation being our shared workplace. Helena's role in sales turned my abstract lines of code into concrete entities, her spirited pitches giving life and purpose to my creations.
+As days morphed into weeks, Helena's fire illuminated my life, casting away shadows of melancholy. Our paths began to intertwine in the most unexpected ways, the most surprising revelation being our shared workplace. Helena's role in sales turned my abstract lines of code into concrete entities, her spirited pitches giving life and purpose to my creations.
 
 Our office, an intricate grid of cubicles, hummed with productivity. Its heart, however, was the glass-encased meeting room where Helena showcased her talent. Her successful presentations were a performance, an orchestra conducted with finesse and passion. Yet, her frequent absences to meet clients cast a pall over the office, her vibrant spirit sorely missed.
 
