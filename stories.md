@@ -82,7 +82,7 @@ As I grappled with her question, I realized that the world I knew, the one of lo
 
 In the stillness of the night, by the Bethesda Fountain under the angel's watchful gaze, I was led into a new realm of possibilities by a woman named Helena. A realm where questions of vampires and immortality were not so far-fetched, and where the dotcom bubble bursting seemed like a distant echo of a previous life. It was frightening, it was exhilarating, and I wouldn't have had it any other way.
 
-## [](#chemical-romance)Chemical Romance
+## [](#you-brought-me-your-love)You Brought Me Your Love
 
 As days morphed into weeks, Helena's incomparable light illuminated my life, casting away shadows of melancholy. [^32] Our paths began to intertwine in the most unexpected ways, the most surprising revelation being our shared workplace. Helena's role in sales turned my abstract lines of code into concrete entities, her spirited pitches giving life and purpose to my creations.
 
@@ -143,3 +143,5 @@ Our journey was not without its trials and tribulations. Arguments, fierce as th
 By June, we were poised at the threshold of the next chapter of our shared life. Our bond, strengthened by our shared love for chess, cooking, Blockbuster marathons, Green Day, and our shared living space, was ready to weather any storm. Our love, much like a symphony, was a harmonious blend of high and low notes, and as we swayed to its rhythm, we understood that the true beauty of our relationship lay in the symphony we created together.
 
 As the longest day of the year, June 21, bathed the city in a golden glow, we stood on our rooftop, ready to face whatever the future held. With Helena's hand in mine, I confessed, "With you, every day feels like the longest day, in the best possible way." Her laughter echoed over the cityscape, confirming my belief that we were no longer just two people lost in a sprawling city, but two halves of a whole, ready for the next verse of our shared song[^1].
+
+## [](#i-brought-you-my-bullets)I Brought You My Bullets
