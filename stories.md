@@ -40,7 +40,7 @@ And then, like an unexpected syntax error, she appears — Helena. A rogue eleme
 
 ## [](#like-phantoms-forever) Like Phantoms, Forever 
 
-Her hair was a torrent of obsidian, a cascading waterfall of inky tendrils that framed her porcelain face, shimmering under the artificial glow of neon streetlights. It was an echo of chaos in perfect harmony, mirroring the way her spirit freely danced within the confines of societal shackles. This was a heart attack in black hair dye, a femme fatale who could incite a cardiac arrest with a single glance. [^30]
+Her hair was a torrent of obsidian, a cascading waterfall of inky tendrils that framed her porcelain face, shimmering under the artificial glow of neon streetlights. It was an echo of chaos in perfect harmony, mirroring the way her spirit freely danced within the confines of societal shackles. This was a heart attack in black hair dye, a girl who could incite a cardiac arrest with a single glance. [^30]
 
 The world was her stage, and every step she took was a dance. She moved with an ethereal grace, weaving her way through the bustling crowd with an unhurried, almost languid elegance. She was a match set to burn the world, and the world was all too willing to offer itself as fuel for her fire. [^31]
 
