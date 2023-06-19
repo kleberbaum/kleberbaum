@@ -6,6 +6,7 @@
 
 [^30]: Save Yourself, I’ll Hold Them Back, Danger Days: The True Lives of the Fabulous Killjoys, 2010.
 [^31]: Helena, Three Cheers for Sweet Revenge, 2004.
+[^32]: The Sharpest Lives, The Black Parade
 
 # Requiem for a Lost Soul
 "Requiem for a Lost Soul" is a work of fiction that was originally composed in German and subsequently machine-translated to English. The author and publisher have made every effort to ensure the accuracy of this translation, but there may be linguistic or cultural discrepancies that arise from this process. Any such discrepancies are unintentional and not meant to offend or misrepresent.
@@ -48,7 +49,7 @@ I was irrevocably drawn to her, like a moth drawn to the flame. It was dangerous
 
 As dangerous and intoxicating as she was, I was ready to brave the flames, for the promise of warmth and light was worth the risk of the inevitable burn. Stammering a reply, I realized her presence represented a beacon in my existential despair — my purpose. [^1]
 
-As days morphed into weeks, Helena's fire illuminated my life, casting away shadows of melancholy. Our paths began to intertwine in the most unexpected ways, the most surprising revelation being our shared workplace. Helena's role in sales turned my abstract lines of code into concrete entities, her spirited pitches giving life and purpose to my creations.
+As days morphed into weeks, Helena's incomparable light illuminated my life, casting away shadows of melancholy. [^32] Our paths began to intertwine in the most unexpected ways, the most surprising revelation being our shared workplace. Helena's role in sales turned my abstract lines of code into concrete entities, her spirited pitches giving life and purpose to my creations.
 
 Our office, an intricate grid of cubicles, hummed with productivity. Its heart, however, was the glass-encased meeting room where Helena showcased her talent. Her successful presentations were a performance, an orchestra conducted with finesse and passion. Yet, her frequent absences to meet clients cast a pall over the office, her vibrant spirit sorely missed.
 
