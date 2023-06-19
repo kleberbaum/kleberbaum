@@ -4,7 +4,18 @@
 [^4]: Drowning Lessons, I Brought You My Bullets, You Brought Me Your Love, 2002.
 [^5]: Vampires Will Never Hurt You, I Brought You My Bullets, You Brought Me Your Love, 2002.
 
-# [](#prologue)Prologue
+# Requiem for a Lost Soul
+"Requiem for a Lost Soul" is a work of fiction, and any resemblances to real-life individuals, events, or locales are purely coincidental. However, the creative process behind this book was heavily influenced by the first two albums of My Chemical Romance (MCR). As a result, you will find frequent references, both subtle and explicit, to their lyrics and themes throughout the narrative. While the author and publisher hold full respect for MCR's intellectual property rights, any echoes of their music in this work are used as homage rather than appropriation.
+
+Please note that the views and opinions expressed within the pages of this book are those of the fictional characters and do not necessarily reflect those of the author, the publisher, MCR, or any associated parties.
+
+While we encourage readers to immerse themselves in the world created within this novel, we strongly advise caution: this book is not a gentle lullaby. It delves into the complexities of the human condition, exploring themes and subject matters that some readers may find challenging, distressing, or even offensive.
+
+Readers should be aware that "Requiem for a Lost Soul" may contain explicit language, scenes of violence, adult content, or explorations of sensitive topics. We recommend that potential readers review these considerations before proceeding, especially those who may be affected by any triggering subject matter. The discretion of the reader is advised.
+
+The author and publisher hold no responsibility for any personal distress, upset, or harm caused as a result of reading this work. Should you choose to venture within these pages, you do so at your own risk. Enjoy the journey, but be wary — this is not a lullaby.
+
+## [](#prologue)Prologue
 
 Twilight's shroud descends, draping the convoluted arteries of Manhattan in cool shadow. The city, indifferent in its spectral grandeur, whispers in a cryptic language of echoes and half-truths, meant for lonely souls adrift in the concrete labyrinth. The moon, a cold witness, casts ethereal glow on unyielding steel and glass, reflecting my grayscale existence in this city's heartless symphony.
 
@@ -22,7 +33,7 @@ In this sprawling digital canvas, I am a solitary pixel, an errant pointer in th
 
 And then, like an unexpected syntax error, she appears — Helena. A rogue element within the structured monotony, she sparks amidst the city's spectral indifference[^1]. Her existence, a thrilling deviance within the scripted narrative, is the breakpoint in my recursive cycle, the anomaly that shatters the grayscale monotony of my world.
 
-# [](#chemical-romance)Chemical Romance
+## [](#chemical-romance)Chemical Romance
 
 Drawn by her radiance, I felt an inexplicable pull towards her, an allure too strong to resist. She sparked a dormant curiosity, a desperate yearning within me. Her greeting cut through the monotonous hum of the city, a welcome note of melody in a sea of white noise. Stammering a reply, I realized her presence represented a beacon in my existential despair, a refuge from the enveloping chaos[^1].
 
