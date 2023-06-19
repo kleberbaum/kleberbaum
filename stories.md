@@ -35,7 +35,7 @@ The methodical progression of code, a relentless cursor blinking on the precipic
 
 In this sprawling digital canvas, I am a solitary pixel, an errant pointer in the city's relentless assembly. The verdant veins of Central Park offer temporary respite, my path threading through the echoes of a million whispered secrets. I've become a phantom in the city's pulsating heartbeat, a glitch in its code, silently yearning for release.
 
-And then, like an unexpected syntax error, she appears — Helena. A rogue element within the structured monotony, she sparks amidst the city's spectral indifference[^1]. Her existence, a thrilling deviance within the scripted narrative, is the breakpoint in my recursive cycle, the anomaly that shatters the grayscale monotony of my world.
+And then, like an unexpected syntax error, she appears — Helena. A rogue element within the structured monotony, she sparks amidst the city's spectral indifference. Her existence, a thrilling deviance within the scripted narrative, is the breakpoint in my recursive cycle, the anomaly that shatters the grayscale monotony of my world. [^1]
 
 ## [](#chemical-romance)Chemical Romance
 
