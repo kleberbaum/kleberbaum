@@ -5,13 +5,13 @@
 [^5]: Vampires Will Never Hurt You, I Brought You My Bullets, You Brought Me Your Love, 2002.
 
 # Requiem for a Lost Soul
-"Requiem for a Lost Soul" is a work of fiction, and any resemblances to real-life individuals, events, or locales are purely coincidental. However, the creative process behind this book was heavily influenced by the first two albums of My Chemical Romance (MCR). As a result, you will find frequent references, both subtle and explicit, to their lyrics and themes throughout the narrative. While the author and publisher hold full respect for MCR's intellectual property rights, any echoes of their music in this work are used as homage rather than appropriation.
+"Requiem for a Lost Soul" is a work of fiction that was originally composed in German and subsequently machine-translated to English. The author and publisher have made every effort to ensure the accuracy of this translation, but there may be linguistic or cultural discrepancies that arise from this process. Any such discrepancies are unintentional and not meant to offend or misrepresent.
 
-Please note that the views and opinions expressed within the pages of this book are those of the fictional characters and do not necessarily reflect those of the author, the publisher, MCR, or any associated parties.
+Any resemblances to real-life individuals, events, or locales are purely coincidental. The setting of New York City within this book is entirely based on research and imaginative interpretation, as the author has never visited this location in person. Therefore, any inaccuracies related to the city's depiction are not intended and should be considered a part of the fictional narrative.
 
-While we encourage readers to immerse themselves in the world created within this novel, we strongly advise caution: this book is not a gentle lullaby. It delves into the complexities of the human condition, exploring themes and subject matters that some readers may find challenging, distressing, or even offensive.
+The creative process behind this book was heavily influenced by the first two albums of My Chemical Romance (MCR), and as such, contains numerous references to their lyrics and themes. While these references are intended as a tribute, they do not necessarily reflect the views of MCR, the author, the publisher, or any associated parties.
 
-Readers should be aware that "Requiem for a Lost Soul" may contain explicit language, scenes of violence, adult content, or explorations of sensitive topics. We recommend that potential readers review these considerations before proceeding, especially those who may be affected by any triggering subject matter. The discretion of the reader is advised.
+This book is not a gentle lullaby. It explores complex and potentially distressing themes and subject matters. It may contain explicit language, scenes of violence, adult content, or explorations of sensitive topics. Readers should review these considerations before proceeding, especially those who may be affected by any triggering subject matter. Discretion is advised.
 
 The author and publisher hold no responsibility for any personal distress, upset, or harm caused as a result of reading this work. Should you choose to venture within these pages, you do so at your own risk. Enjoy the journey, but be wary — this is not a lullaby.
 
