@@ -8,6 +8,7 @@
 [^31]: Helena, Three Cheers for Sweet Revenge, 2004.
 [^32]: The Sharpest Lives, The Black Parade
 [^33]: Save Yourself, I’ll Hold Them Back, Danger Days: The True Lives of the Fabulous Killjoys, 2010.
+[^34]: Emily, 2016.
 
 # Requiem for a Lost Soul
 "Requiem for a Lost Soul" is a work of fiction that was originally composed in German and subsequently machine-translated to English. The author and publisher have made every effort to ensure the accuracy of this translation, but there may be linguistic or cultural discrepancies that arise from this process. Any such discrepancies are unintentional and not meant to offend or misrepresent.
@@ -36,7 +37,7 @@ The methodical progression of code, a relentless cursor blinking on the precipic
 
 In this sprawling digital canvas, I am a solitary pixel, an errant pointer in the city's relentless assembly. The verdant veins of Central Park offer temporary respite, my path threading through the echoes of a million whispered secrets. I've become a phantom in the city's pulsating heartbeat, a glitch in its code, silently yearning for release.
 
-And then, like an unexpected syntax error, she appears — Helena. A rogue element within the structured monotony, she sparks amidst the city's spectral indifference. Her existence, a thrilling deviance within the scripted narrative, is the breakpoint in my recursive cycle, the anomaly that shatters the grayscale monotony of my world. [^1]
+And then, like an unexpected syntax error, she appears — Emily. [^34] A rogue element within the structured monotony, she sparks amidst the city's spectral indifference. Her existence, a thrilling deviance within the scripted narrative, is the breakpoint in my recursive cycle, the anomaly that shatters the grayscale monotony of my world. [^1]
 
 ## [](#like-phantoms-forever) Like Phantoms, Forever 
 
@@ -60,13 +61,13 @@ She began to drift away, navigating the crowd like a phantom, her laughter echoi
 
 This was my moment. "May I... Can I join you?" I asked, hoping my voice didn't betray the depth of my anticipation. The question lingered in the air between us, waiting to be answered, to either end this night in disappointment or ignite the beginning of a story woven with threads of danger and enchantment.
 
-"Can you keep up?" Helena asked, a playful challenge lacing her voice. She turned on her heel, her obsidian hair catching the glow of the streetlights as she started toward Central Park.
+"Can you keep up?" She asked, a playful challenge lacing her voice. She turned on her heel, her obsidian hair catching the glow of the streetlights as she started toward Central Park.
 
 I followed, almost too entranced by her to question the oddness of the situation. The city was quieter now, its relentless energy tamed to a dull hum by the late hour. The echo of our footsteps seemed louder somehow, bouncing off the stone walls of the park's entrance.
 
-We reached Bethesda Fountain, its famous angel frozen in a perpetual gesture of blessing, reaching out to an empty terrace. Helena paused, looking up at the angel, her jade eyes reflecting the moonlight. "Beautiful, isn't it?" she asked, her voice barely above a whisper.
+We reached Bethesda Fountain, its famous angel frozen in a perpetual gesture of blessing, reaching out to an empty terrace. She paused, looking up at the angel, her jade eyes reflecting the moonlight. "Beautiful, isn't it?" she asked, her voice barely above a whisper.
 
-I nodded, words escaping me in the face of the scene. Helena, under the moonlight, before the angel, seemed ethereal, a vision from another world. Then she asked the question that threw me off balance: "What do you think about... vampires?"
+I nodded, words escaping me in the face of the scene. Emily, under the moonlight, before the angel, seemed ethereal, a vision from another world. Then she asked the question that threw me off balance: "What do you think about... vampires?" [^34]
 
 The question took me by surprise, my eyebrows knitting together. "Vampires?" I echoed, the word feeling foreign as it slipped past my lips. "You mean, like in the books and movies? Creatures of the night and all that?"
 
@@ -80,29 +81,29 @@ She turned to look at me then, her iron-stained jade eyes meeting mine. "Would y
 
 As I grappled with her question, I realized that the world I knew, the one of logic and certainty, was slipping away. In its place was this night, this woman, and a question I couldn't answer. 
 
-In the stillness of the night, by the Bethesda Fountain under the angel's watchful gaze, I was led into a new realm of possibilities by a woman named Helena. A realm where questions of vampires and immortality were not so far-fetched, and where the dotcom bubble bursting seemed like a distant echo of a previous life. It was frightening, it was exhilarating, and I wouldn't have had it any other way.
+In the stillness of the night, by the Bethesda Fountain under the angel's watchful gaze, I was led into a new realm of possibilities by a woman named Emily. [^34] A realm where questions of vampires and immortality were not so far-fetched, and where the dotcom bubble bursting seemed like a distant echo of a previous life. It was frightening, it was exhilarating, and I wouldn't have had it any other way.
 
 ## [](#you-brought-me-your-love)You Brought Me Your Love
 
-As days morphed into weeks, Helena's incomparable light illuminated my life, casting away shadows of melancholy. [^32] Our paths began to intertwine in the most unexpected ways, the most surprising revelation being our shared workplace. Helena's role in sales turned my abstract lines of code into concrete entities, her spirited pitches giving life and purpose to my creations.
+As days morphed into weeks, Emily's incomparable light illuminated my life, casting away shadows of melancholy. [^32] Our paths began to intertwine in the most unexpected ways, the most surprising revelation being our shared workplace. Emily's role in sales turned my abstract lines of code into concrete entities, her spirited pitches giving life and purpose to my creations.
 
-Our office, an intricate grid of cubicles, hummed with productivity. Its heart, however, was the glass-encased meeting room where Helena showcased her talent. Her successful presentations were a performance, an orchestra conducted with finesse and passion. Yet, her frequent absences to meet clients cast a pall over the office, her vibrant spirit sorely missed.
+Our office, an intricate grid of cubicles, hummed with productivity. Its heart, however, was the glass-encased meeting room where Emily showcased her talent. Her successful presentations were a performance, an orchestra conducted with finesse and passion. Yet, her frequent absences to meet clients cast a pall over the office, her vibrant spirit sorely missed.
 
 During those times, I would often find myself near the water cooler, hoping to catch a sliver of her laughter or a glimpse of her through the glass walls. Yet, the fear of becoming a vampire, draining her vitality, haunted me. I feared my jaded existence would dim her radiant spirit. "So many bright lights," I would whisper, lost amidst the office's hum.
 
-But Helena's optimism was unwavering, brushing away my fears like dust off a worn book. "We'll carry on," she'd assure, her words weaving through the cubicles to reach me, a soothing serenade that held promise. Her faith kindled a light within me, dispelling the specters of fear. With her, the office was more than just a workspace - it was our sanctuary, a bastion against the spectral city[^2].
+But Emily's optimism was unwavering, brushing away my fears like dust off a worn book. "We'll carry on," she'd assure, her words weaving through the cubicles to reach me, a soothing serenade that held promise. Her faith kindled a light within me, dispelling the specters of fear. With her, the office was more than just a workspace - it was our sanctuary, a bastion against the spectral city[^2].
 
 Yet, in this burgeoning relationship, I felt the weight of the past and the fear of the future. I had to grapple with the dichotomy of wanting to immerse myself in this new experience while being wary of how it might end[^3].
 
 As our relationship deepened, I could feel a transformation within me. From feeling like a specter haunting the city, I now felt alive and vital. Each day was a lesson, a new understanding, and slowly but surely, I was learning not just to stay afloat, but to swim against the tide of my past[^4].
 
-Our shared struggles became a shield, protecting us from the fears that loomed like vampires. We promised each other, "Vampires will never hurt you," forming a pact that our love would be the sanctuary against the darkness[^5]. It was in Helena that I found my chemical romance, an intoxicating potion that gave meaning to my existence.
+Our shared struggles became a shield, protecting us from the fears that loomed like vampires. We promised each other, "Vampires will never hurt you," forming a pact that our love would be the sanctuary against the darkness[^5]. It was in Emily that I found my chemical romance, an intoxicating potion that gave meaning to my existence.
 
-The moon hung low in the sky, casting the cityscape in an ethereal silver glow, as Helena and I escaped the confines of our office one night. We found ourselves in an isolated corner of the city park, where the silence of the night was only broken by the distant hum of traffic and our intertwined breaths.
+The moon hung low in the sky, casting the cityscape in an ethereal silver glow, as Emily and I escaped the confines of our office one night. We found ourselves in an isolated corner of the city park, where the silence of the night was only broken by the distant hum of traffic and our intertwined breaths.
 
 My heart hammered against my chest, the familiar rhythm a testament to the change within me. My thoughts, once crowded with the code sequences and programming languages, now revolved around her, her laughter, her spirit, her soul. The world, once a monotonous array of grays and blacks, was now ablaze with color and life because of her.
 
-In the shadowed privacy of the park, our relationship evolved into something more profound, more intimate. We huddled close together on the cool park bench, our bodies instinctively seeking warmth. Helena leaned into me, her auburn hair brushing against my cheek, releasing a subtle scent of vanilla and adventure that was uniquely her.
+In the shadowed privacy of the park, our relationship evolved into something more profound, more intimate. We huddled close together on the cool park bench, our bodies instinctively seeking warmth. Emily leaned into me, her auburn hair brushing against my cheek, releasing a subtle scent of vanilla and adventure that was uniquely her.
 
 She looked up at me, her eyes reflecting the luminescent city lights. Seeing my reflection in her gaze was like coming home, a feeling of belonging that was as intoxicating as it was terrifying. My hands trembled as I reached out to her, tracing the outline of her face. She closed her eyes, a soft sigh escaping her lips as she leaned into my touch. 
 
@@ -112,15 +113,15 @@ With that, we closed the gap between us. Our lips met in a tender kiss that seem
 
 Our bodies intertwined, each touch, each caress a declaration of our shared emotions. Her fingers tracing patterns on my back echoed the rhythm of our shared heartbeats, an intimate connection that was uniquely ours. This was more than just a physical connection; it was a sharing of souls, an exploration of our shared dreams, fears, and hopes. 
 
-This was us, headfirst for halos, diving into the unknown, casting aside our fears, and surrendering to the intoxicating cocktail of love and longing. With Helena, I was no longer a ghost in the spectral city but a man who had found his purpose, his sanctuary in the arms of a woman who lit up his world.
+This was us, headfirst for halos, diving into the unknown, casting aside our fears, and surrendering to the intoxicating cocktail of love and longing. With Emily, I was no longer a ghost in the spectral city but a man who had found his purpose, his sanctuary in the arms of a woman who lit up his world.
 
 I held her closer, cherishing this moment, this connection. The fear of the future and the weight of the past seemed insignificant against the force of our shared emotion. As I kissed her, I made a silent promise—to be her sanctuary, to protect her from the vampires of the world, to be the blue to her red, to love her with every byte of my existence.
 
-In Helena, I found my chemical romance, a headfirst dive into halos, a riotous explosion of color in a monochromatic world. And as the night gave way to dawn, I knew I was ready to face the spectral city, the coding sequences, and the existential angst, because I was no longer alone. I had Helena, my beacon, my savior, my chemical romance[^1].
+In Emily, I found my chemical romance, a headfirst dive into halos, a riotous explosion of color in a monochromatic world. And as the night gave way to dawn, I knew I was ready to face the spectral city, the coding sequences, and the existential angst, because I was no longer alone. I had Emily, my beacon, my savior, my chemical romance[^1].
 
 Our relationship, like a piece of burgeoning code, evolved every day, each added function ushering in new understanding and depth. As the colors of November painted the landscape, our love blossomed against the backdrop of shared spaces and stolen glances. On one particular night,
 
-Helena led me to the office rooftop, the city unfolding beneath us.
+Emily led me to the office rooftop, the city unfolding beneath us.
 
 As our breath fogged up in the cold, we saw more than just the city - we saw a shared future, a shared dream.
 
@@ -132,7 +133,7 @@ By the time the new year rolled around, our relationship was as comforting as th
 
 As the biting cold of winter gave way to the freshness of spring, our love blossomed with the city's cherry blossoms. Our tiny kitchen soon turned into a stage for our culinary escapades. Our shared love for food sparked experiments that ranged from disastrous to delicious, but no matter the result, it was always interspersed with laughter and light-hearted banter.
 
-Helena, with her radiant optimism and unyielding spirit, infused my life with vibrancy. Her playful nature and teasing attitude were like a secret language that only we understood. We explored the city together, her spontaneous dances and silly antics breathing life into the otherwise monotonous routine.
+Emily, with her radiant optimism and unyielding spirit, infused my life with vibrancy. Her playful nature and teasing attitude were like a secret language that only we understood. We explored the city together, her spontaneous dances and silly antics breathing life into the otherwise monotonous routine.
 
 Amidst the transformation of seasons and our shared living, our shared love for Green Day echoed in the confines of our apartment. The chords and lyrics became a language of their own, fostering hours of passionate debates and deep conversations that reflected our thoughts, fears, and dreams.
 
@@ -142,6 +143,6 @@ Our journey was not without its trials and tribulations. Arguments, fierce as th
 
 By June, we were poised at the threshold of the next chapter of our shared life. Our bond, strengthened by our shared love for chess, cooking, Blockbuster marathons, Green Day, and our shared living space, was ready to weather any storm. Our love, much like a symphony, was a harmonious blend of high and low notes, and as we swayed to its rhythm, we understood that the true beauty of our relationship lay in the symphony we created together.
 
-As the longest day of the year, June 21, bathed the city in a golden glow, we stood on our rooftop, ready to face whatever the future held. With Helena's hand in mine, I confessed, "With you, every day feels like the longest day, in the best possible way." Her laughter echoed over the cityscape, confirming my belief that we were no longer just two people lost in a sprawling city, but two halves of a whole, ready for the next verse of our shared song[^1].
+As the longest day of the year, June 21, bathed the city in a golden glow, we stood on our rooftop, ready to face whatever the future held. With Emily's hand in mine, I confessed, "With you, every day feels like the longest day, in the best possible way." Her laughter echoed over the cityscape, confirming my belief that we were no longer just two people lost in a sprawling city, but two halves of a whole, ready for the next verse of our shared song[^1].
 
 ## [](#i-brought-you-my-bullets)I Brought You My Bullets
