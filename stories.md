@@ -57,7 +57,7 @@ A corner of her crimson lips curved upward in a knowing smile, like she held all
 
 She began to drift away, navigating the crowd like a phantom, her laughter echoing softly in my ears. I wanted to go after her, to join her in the vortex of beautiful chaos that followed her wherever she went. But I remained rooted to the spot, my feet betraying the urgency that surged within me.
 
-"Wait!" I finally managed to call out, my voice barely more than a whisper. She turned back, her gray-green eyes sparkling under the neon lights, their hue enigmatic as an uncharted ocean.
+"Wait!" I finally managed to call out, my voice barely more than a whisper. She turned back, her gray-green eyes sparkling under the neon lights, their hue enigmatic as an uncharted sea.
 
 This was my moment. "May I... Can I join you?" I asked, hoping my voice didn't betray the depth of my anticipation. The question lingered in the air between us, waiting to be answered, to either end this night in disappointment or ignite the beginning of a story woven with threads of danger and enchantment.
 
