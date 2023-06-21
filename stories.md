@@ -57,7 +57,7 @@ A corner of her crimson lips curved upward in a knowing smile, like she held all
 
 She began to drift away, navigating the crowd like a phantom, her laughter echoing softly in my ears. I wanted to go after her, to join her in the vortex of beautiful chaos that followed her wherever she went. But I remained rooted to the spot, my feet betraying the urgency that surged within me.
 
-"Wait!" I finally managed to call out, my voice barely more than a whisper. She turned back, her jade eyes sparkling under the neon lights, their color deep as an ancient forest, mysterious as an uncharted sea. She held my gaze, waiting for me to make the next move.
+"Wait!" I finally managed to call out, my voice barely more than a whisper. She turned back, her gray-green eyes sparkling under the neon lights, their hue enigmatic as an uncharted ocean.
 
 This was my moment. "May I... Can I join you?" I asked, hoping my voice didn't betray the depth of my anticipation. The question lingered in the air between us, waiting to be answered, to either end this night in disappointment or ignite the beginning of a story woven with threads of danger and enchantment.
 
@@ -75,7 +75,7 @@ She nodded, her gaze still fixed on the angel. "Yes, those creatures. They're a 
 
 A shiver ran down my spine. "It's a high price to pay," I said, thinking of the loneliness, the hunger, the loss that such a life - or rather, unlife - would entail.
 
-She turned to look at me then, her iron-stained jade eyes meeting mine. "Would you pay it?" she asked, her voice soft but insistent.
+She turned to look at me then, her jade eyes meeting mine. "Would you pay it?" she asked, her voice soft but insistent.
 
 "I..." I faltered, the weight of the question pressing on me. Would I trade my humanity for eternal life? Could I live in the darkness, forever on the outskirts of society? Was any cost too high for the gift of time?
 
