@@ -36,7 +36,7 @@ I emerge from the 14th Street crypt into November's frigid breath. Faceless dron
 
 Is there purpose within the life-script I've authored? I came here chasing a bubble now burst, illusions dissolving to reveal a rotted core. Apathy nibbles at my sanity. I'm but a corpse in the unfeeling corridors of ambition, my dreams drowned out by sirens, horns, screeching subways.
 
-Solitude, my faithful shadow, throws a party for past ghosts. Friends now fragments of shared goals and secrets. Our shared code, once a vibrant program destined to revolutionize, is now a bug-riddled archive, a crash of ambition.
+Solitude, my faithful shadow, throws a party for past ghosts. Friends now fragments of shared goals and secrets. Our shared code, once a vibrant program destined to revolutionize, is now a bug-riddled archive, a crash of aspirations.
 
 We've become cogs in suits and ties, prisoners of the machine. Societal chains strip the color from our souls, leaving only black and white husks. The cursor of time ticks our meaningless lives away. Shared laughter, camaraderie, dreams — all seem like echoes in a hollow shell.
 
