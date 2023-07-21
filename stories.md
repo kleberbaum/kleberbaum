@@ -62,9 +62,6 @@ Our eyes met for a heartbeat. Something primal in me stirred, sensing danger and
 
 I was wrong.
 
-## Forever
-The world was her stage, and every step she took was a dance. She moved with an ethereal grace, weaving her way through the bustling crowd with an unhurried, almost languid elegance. She was a match set to burn the world, and the world was all too willing to offer itself as fuel for her fire. [^31]
-
 Over the next few weeks, I kept running into her around the East Village. She would turn up unexpectedly on street corners or stare across the room at bars. Each time our eyes met, an inexplicable sense of connection jolted through me.
 
 Her aura radiated an intoxicating blend of rebellion and grace, a dangerous combination that made my heart race in my chest. 
@@ -85,6 +82,7 @@ She began to drift away, navigating the crowd like a phantom, her laughter echoi
 
 Then Emily melted back into the shadows, leaving me spellbound in her wake.
 
+## Forever
 The address led to an abandoned storefront near Tompkins Square Park. Graffiti snarls spread across dingy brick in parasitic tendrils. Shattered syringes littered the sidewalk.
 
 I hesitated, Emily’s cryptic invitation seeming sinister now in the dead of night. But curiosity overpowered caution. I slipped through the battered door into the darkness within.
