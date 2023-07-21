@@ -32,19 +32,21 @@ Trapped in the city's circuitry, my thoughts blur into a recursive swirl of doub
 
 I emerge from the 14th Street crypt into November's frigid breath. Faceless drones march the sidewalks, focused inward on their scripted routines. Just anonymous robots playing human.
 
-Is there purpose within the life-script I've authored? I came here chasing a bubble now burst.
+Is there purpose within my life-script? I came here chasing a bubble now burst.
 
-Moonlight splashes coldly on uncaring steel and glass, turning it into a mirror.
+Moonlight splashes coldly on uncaring steel and glass, turning them into jet-black mirrors.
 
-Apathy nibbles at my sanity. I'm but a corpse in the unfeeling corridors of ambition, my dreams drowned out by sirens, horns, screeching subways.
+Two figures exchange cash for chemical escape in a filthy alley. Giuliani certainly cleaned up the city.
 
-My solitude throws a party. Friends now fragments of shared goals and secrets. Our shared code, once a vibrant program destined to revolutionize, is now a bug-riddled archive, a crash of aspirations lost in the memory.
+I turn away as apathy continues nibbling at my soul. Buying drugs requires more motivation than I can summon.
 
-We've become cogs in suits and ties, prisoners of the machine. Societal chains strip the color from our souls, leaving only black and white husks. The cursor once our passion, now only ticks our time away.
+A corpse in the unfeeling corridors of ambition, my vitality drained by sirens, horns, screeching subways.
 
-Shared laughter, camaraderie, dreams — all seem like echoes in an empty shell.
+My Friends now orphans of shared objectives and secrets. Our code, once a vibrant program destined to revolutionize, now nothing but a bug-riddled archive, a system crash of aspirations.
 
-My existence a stray pointer in the corrupted assembly. My life slips away one line at a time, a doomed process destined to crash?
+The cursor once our passion, now only ticks time away. Shared laughter, camaraderie, dreams — all seem like echoes in an abandoned shell.
+
+My existence a stray pointer in a corrupted assembly. Life slips away one line at a time, a doomed process destined to crash?
 
 And then she appears — Emily. Like a glitch in the matrix, a rogue element within the structured monotony. Her bright chaotic energy, sparks against the spectral indifference of the city and her existence, a thrilling deviance within my scripted narrative. She marks an unexpected breakpoint in my recursive despair.[^1]
 
@@ -317,3 +319,4 @@ I'm just a stray pointer in the city’s corrupted assembly. My life slips away 
 And then, like a glitch, she appears — Emily. A rogue element within the structured monotony, she sparks amidst the city's spectral indifference. Her existence, a thrilling deviance within the scripted narrative, is the breakpoint in my recursive cycle. [^1]
 
 ## [](#i-brought-you-my-bullets)I Brought You My Bullets
+Cogs in suits and ties, prisoners of the machines? Societal chains strip the color from our souls, leaving only black and white husks.
