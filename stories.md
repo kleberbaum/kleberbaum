@@ -26,7 +26,7 @@ The author and publisher hold no responsibility for any personal distress, upset
 
 The F train shrieks through lightless tunnels, a metal banshee slithering beneath Manhattan’s icy facade. Fluorescent light flickers hypnotically across blank faces. A pop song bleats tinnily from the headphones of a Walkman.
 
-I stare numbly at graffitied walls flashing by. Bush or Gore, red or blue — does it really matter? Suited snakes offer hope through toothy grins, but nothing ever changes. I remain a temp, selling my soul to hawk useless crap.
+I stare numbly at graffitied walls flashing by. Bush or Gore, red or blue — does it really matter? Suited figures peddle hope with practiced smiles, but nothing ever changes. I remain a temp, selling my soul to hawk useless crap.
 
 Trapped in the city's circuitry, my thoughts blur into a recursive swirl of doubt. My world, programmed in rigid structures, fades into the flashing dreamscape.
 
