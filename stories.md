@@ -28,13 +28,11 @@ The F train shrieks through lightless tunnels, a metal banshee slithering beneat
 
 I stare numbly at graffitied walls flashing by. Bush or Gore, red or blue — does it really matter? Suited snakes offer hope through toothy grins, but nothing ever changes. I remain a temp, selling my soul to hawk useless crap.
 
-Trapped in twilight's circuitry, my thoughts blur into a recursive swirl of doubt. My world, programmed in rigid structures, fades into the flashing dreamscape.
-
-In the city's binary symphony, I've become a subroutine.
+Trapped in the city's circuitry, my thoughts blur into a recursive swirl of doubt. My world, programmed in rigid structures, fades into the flashing dreamscape.
 
 I emerge from the 14th Street crypt into November's frigid breath. Faceless drones march the sidewalks, focused inward on their scripted routines. Just anonymous robots playing human.
 
-Is there purpose within the life-script I've authored? I came here chasing a bubble now burst, illusions dissolving to reveal a rotted core.
+Is there purpose within the life-script I've authored? I came here chasing a bubble now burst.
 
 Moonlight splashes coldly on uncaring steel and glass, turning it into a mirror.
 
@@ -42,11 +40,11 @@ Apathy nibbles at my sanity. I'm but a corpse in the unfeeling corridors of ambi
 
 My solitude throws a party. Friends now fragments of shared goals and secrets. Our shared code, once a vibrant program destined to revolutionize, is now a bug-riddled archive, a crash of aspirations lost in the memory.
 
-We've become cogs in suits and ties, prisoners of the machine. Societal chains strip the color from our souls, leaving only black and white husks. The cursor of time ticks our lives away.
+We've become cogs in suits and ties, prisoners of the machine. Societal chains strip the color from our souls, leaving only black and white husks. The cursor once our passion, now only ticks our time away.
 
 Shared laughter, camaraderie, dreams — all seem like echoes in an empty shell.
 
-I'm but a stray pointer in the corrupted assembly. My life slips away one line at a time, a doomed process destined to crash?
+My existence a stray pointer in the corrupted assembly. My life slips away one line at a time, a doomed process destined to crash?
 
 And then she appears — Emily. Like a glitch in the matrix, a rogue element within the structured monotony. Her bright chaotic energy, sparks against the spectral indifference of the city and her existence, a thrilling deviance within my scripted narrative. She marks an unexpected breakpoint in my recursive despair.[^1]
 
