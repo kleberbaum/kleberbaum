@@ -24,24 +24,31 @@ The author and publisher hold no responsibility for any personal distress, upset
 
 ## [](#prologue)Prologue
 
-The F train shrieks through lightless tunnels, a metal banshee slithering beneath Manhattan’s icy facade. Fluorescent light flickers hypnotically across blank faces focused inward. A pop song bleats tinnily from headphones.
+The F train shrieks through lightless tunnels, a metal banshee slithering beneath Manhattan’s icy facade. Fluorescent light flickers hypnotically across blank faces. A pop song bleats tinnily from the headphones of a Walkman.
 
-I stare numbly at graffitied walls flashing by. Bush or Gore, red or blue — does it really matter? Suited snakes offer hope through toothy grins, but nothing ever changes. I remain just a temp, selling my soul to hawk useless crap.
+I stare numbly at graffitied walls flashing by. Bush or Gore, red or blue — does it really matter? Suited snakes offer hope through toothy grins, but nothing ever changes. I remain a temp, selling my soul to hawk useless crap.
 
-Moonlight splashes coldly on uncaring steel and glass, mirroring my existence.
+Trapped in twilight's circuitry, my thoughts blur into a recursive swirl of doubt. My world, programmed in rigid structures, fades into the flashing dreamscape.
 
-Trapped in twilight's circuitry, my thoughts blur into a recursive swirl of doubt. My world, programmed in rigid structures, fades into the flashing dreamscape. In the city's binary symphony, I've become a subroutine.
+In the city's binary symphony, I've become a subroutine.
 
 I emerge from the 14th Street crypt into November's frigid breath. Faceless drones march the sidewalks, focused inward on their scripted routines. Just anonymous robots playing human.
 
-Is there purpose within the life-script I've authored? I came here chasing a bubble now burst, illusions dissolving to reveal a rotted core. Apathy nibbles at my sanity. I'm but a corpse in the unfeeling corridors of ambition, my dreams drowned out by sirens, horns, screeching subways.
-throws a party for past ghosts. Friends now fragments of shared goals and secrets. Our shared code, once a vibrant program destined to revolutionize, is now a bug-riddled archive, a crash of aspirations.
+Is there purpose within the life-script I've authored? I came here chasing a bubble now burst, illusions dissolving to reveal a rotted core.
 
-We've become cogs in suits and ties, prisoners of the machine. Societal chains strip the color from our souls, leaving only black and white husks. The cursor of time ticks our meaningless lives away. Shared laughter, camaraderie, dreams — all seem like echoes in a hollow shell.
+Moonlight splashes coldly on uncaring steel and glass, turning it into a mirror.
 
-I'm just a stray pointer in the city’s corrupted assembly. My life slips away one line at a time, a corrupted process doomed to crash.
+Apathy nibbles at my sanity. I'm but a corpse in the unfeeling corridors of ambition, my dreams drowned out by sirens, horns, screeching subways.
 
-And then she appears — Emily. A glitch in the matrix, a rogue element within the structured monotony. Her bright chaotic energy, sparks against the spectral indifference of the city and her existence, a thrilling deviance within the scripted narrative. She marks an unexpected breakpoint in my recursive despair.[^1]
+My solitude throws a party. Friends now fragments of shared goals and secrets. Our shared code, once a vibrant program destined to revolutionize, is now a bug-riddled archive, a crash of aspirations lost in the memory.
+
+We've become cogs in suits and ties, prisoners of the machine. Societal chains strip the color from our souls, leaving only black and white husks. The cursor of time ticks our lives away.
+
+Shared laughter, camaraderie, dreams — all seem like echoes in an empty shell.
+
+I'm but a stray pointer in the corrupted assembly. My life slips away one line at a time, a doomed process destined to crash?
+
+And then she appears — Emily. Like a glitch in the matrix, a rogue element within the structured monotony. Her bright chaotic energy, sparks against the spectral indifference of the city and her existence, a thrilling deviance within my scripted narrative. She marks an unexpected breakpoint in my recursive despair.[^1]
 
 ## [](#like-phantoms-forever) Like Phantoms 
 I first saw Emily at a bar on Avenue A, surrounded by the whiskered hipsters and nose-ringed nymphs of the Lower East Side. Another temp Dan dragged me there after our latest tech job evaporated.
