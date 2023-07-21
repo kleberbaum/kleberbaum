@@ -40,8 +40,6 @@ Two figures exchange cash for chemical escape in a filthy alley. Giuliani certai
 
 I turn away as apathy continues nibbling at my soul. Buying drugs requires more motivation than I can summon.
 
-A corpse in the unfeeling corridors of ambition, my vitality drained by sirens, horns, screeching subways.
-
 My friends now orphans of shared objectives and secrets. Our code, once a vibrant program destined to revolutionize, now nothing but a bug-riddled archive, a system crash of aspirations.
 
 The cursor, once a symbol of our passion, now only ticks time away. Shared laughter, camaraderie, dreams — all seem like echoes in an abandoned shell.
