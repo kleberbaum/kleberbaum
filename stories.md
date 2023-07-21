@@ -42,13 +42,13 @@ I turn away as apathy continues nibbling at my soul. Buying drugs requires more 
 
 A corpse in the unfeeling corridors of ambition, my vitality drained by sirens, horns, screeching subways.
 
-My Friends now orphans of shared objectives and secrets. Our code, once a vibrant program destined to revolutionize, now nothing but a bug-riddled archive, a system crash of aspirations.
+My friends now orphans of shared objectives and secrets. Our code, once a vibrant program destined to revolutionize, now nothing but a bug-riddled archive, a system crash of aspirations.
 
-The cursor once our passion, now only ticks time away. Shared laughter, camaraderie, dreams — all seem like echoes in an abandoned shell.
+The cursor, once a symbol of our passion, now only ticks time away. Shared laughter, camaraderie, dreams — all seem like echoes in an abandoned shell.
 
-My existence a stray pointer in a corrupted assembly. Life slips away one line at a time, a doomed process destined to crash?
+My existence mirroring a stray pointer in a corrupted assembly. Life slips away one line at a time, a doomed process destined to crash?
 
-And then she appears — Emily. Like a glitch in the matrix, a rogue element within the structured monotony. Her bright chaotic energy, sparks against the spectral indifference of the city and her existence, a thrilling deviance within my scripted narrative. She marks an unexpected breakpoint in my recursive despair.[^1]
+And then she appears — Emily. Like a glitch in the matrix, a rogue element within the structured monotony. Her bright chaotic energy, sparks against the spectral indifference of the city and her existence, a thrilling deviance within my scripted narrative. She marks an unexpected break in my recursive despair.[^1]
 
 ## [](#like-phantoms-forever) Like Phantoms 
 I first saw Emily at a bar on Avenue A, surrounded by the whiskered hipsters and nose-ringed nymphs of the Lower East Side. Another temp Dan dragged me there after our latest tech job evaporated.
