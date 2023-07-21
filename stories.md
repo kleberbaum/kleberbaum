@@ -26,7 +26,7 @@ The author and publisher hold no responsibility for any personal distress, upset
 
 The F train shrieks through lightless tunnels, a metal banshee slithering beneath Manhattan’s icy facade. Fluorescent light flickers hypnotically across blank faces. A pop song bleats tinnily from the headphones of a Walkman.
 
-I stare numbly at graffitied walls flashing by. Bush or Gore, red or blue — does it really matter? Suited figures peddle hope with practiced smiles, but nothing ever changes. I remain a temp, selling my soul to hawk useless crap.
+I stare numbly at graffitied walls flashing by: Bush or Gore, red or blue — does it really matter? Suited figures peddle hope with practiced smiles, but nothing ever changes. I remain a temp, selling my soul to hawk useless crap.
 
 Trapped in the city's circuitry, my thoughts blur into a recursive swirl of doubt. My world, programmed in rigid structures, fades into the flashing dreamscape.
 
@@ -40,7 +40,7 @@ Two figures exchange cash for chemical escape in a filthy alley. Giuliani certai
 
 I turn away as apathy continues nibbling at my soul. Buying drugs requires more motivation than I can summon.
 
-My friends now orphans of shared objectives and secrets. Our code, once a vibrant program destined to revolutionize, now nothing but a bug-riddled archive, a system crash of aspirations.
+My friends are now orphans of shared objectives and secrets; our code, once a vibrant program destined to revolutionize, is now nothing but a bug-riddled archive, a system crash of aspirations.
 
 The cursor, once a symbol of our passion, now only ticks time away. Shared laughter, camaraderie, dreams — all seem like echoes in an abandoned shell.
 
