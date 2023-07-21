@@ -30,7 +30,7 @@ I stare numbly at graffitied walls flashing by. Bush or Gore, red or blue — do
 
 Trapped in the city's circuitry, my thoughts blur into a recursive swirl of doubt. My world, programmed in rigid structures, fades into the flashing dreamscape.
 
-I emerge from the 14th Street crypt into November's frigid breath. Faceless drones march the sidewalks, focused inward on their scripted routines. Just anonymous robots playing human.
+I emerge from the 14th Street crypt into November's frigid breath. Faceless drones march the sidewalks, focused inward on their scripted routines - just anonymous robots playing human.
 
 Is there purpose within my life-script? I came here chasing a bubble now burst.
 
