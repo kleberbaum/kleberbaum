@@ -24,6 +24,22 @@ The author and publisher hold no responsibility for any personal distress, upset
 
 ## [](#prologue)Prologue
 
+The F train shrieks through lightless tunnels like a metal banshee slithering beneath Manhattan’s icy facade. Fluorescent light flickers hypnotically across blank faces. A pop song bleats tinnily from the headphones of a Walkman.
+
+A 24 year old man stares numbly at graffitied walls flashing by: Bush or Gore, red or blue — does it really matter? Suited figures peddle hope with practiced smiles, but nothing ever changes.
+
+I am a temp, selling my soul to hawk useless crap - a realization that follows me like a shadow. Trapped in the city's circuitry, my thoughts blur into a recursive swirl of doubt.
+
+My world, programmed in rigid structures, fades into the flashing dreamscape as I emerge from the 14th Street crypt into November's frigid breath. Faceless drones march the sidewalks, focused inward on their scripted routines - just anonymous robots playing human. Is there a purpose within my life-script?
+
+The Moonlight splashes coldly on uncaring steel and glass, turning them into jet-black mirrors. Two man exchange cash for chemical escape. I turn away apathetically as buying drugs requires more motivation than I can summon.
+
+I came here chasing a bubble, now the remains of my friends are nothing but orphans to our shared objectives and secrets; our code, once a vibrant program destined to revolutionize, nothing more than a bug-riddled archive, a system crash of aspirations. As programmers the cursor was once a symbol inspiration, now it only ticks time away. Shared laughter, camaraderie, dreams — all seem like echoes in an abandoned shell.
+My existence mirroring a stray pointer in a corrupted assembly, a lonely phantom disconnected from the world. A doomed process destined to crash?
+
+And then she appears — Emily. Like a glitch in the matrix, a rogue element within the monotone symphony. Her bright chaotic energy, sparks against the spectral indifference of the city and her existence, a thrilling deviance within my scripted narrative. She marks an unexpected break in my recursive despair.
+
+##old
 The F train shrieks through lightless tunnels, a metal banshee slithering beneath Manhattan’s icy facade. Fluorescent light flickers hypnotically across blank faces. A pop song bleats tinnily from the headphones of a Walkman.
 
 I stare numbly at graffitied walls flashing by: Bush or Gore, red or blue — does it really matter? Suited figures peddle hope with practiced smiles, but nothing ever changes. I remain a temp, selling my soul to hawk useless crap.
