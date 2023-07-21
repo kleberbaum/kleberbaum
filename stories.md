@@ -46,7 +46,7 @@ The cursor, once a symbol of our passion, now only ticks time away. Shared laugh
 
 My existence mirroring a stray pointer in a corrupted assembly. Life slips away one line at a time, a doomed process destined to crash?
 
-And then she appears — Emily. Like a glitch in the matrix, a rogue element within the structured monotony. Her bright chaotic energy, sparks against the spectral indifference of the city and her existence, a thrilling deviance within my scripted narrative. She marks an unexpected break in my recursive despair.[^1]
+And then she appears — Emily. Like a glitch in the matrix, a rogue element within the monoton symphony. Her bright chaotic energy, sparks against the spectral indifference of the city and her existence, a thrilling deviance within my scripted narrative. She marks an unexpected break in my recursive despair.[^1]
 
 ## [](#like-phantoms-forever) Like Phantoms 
 I first saw Emily at a bar on Avenue A, surrounded by the whiskered hipsters and nose-ringed nymphs of the Lower East Side. Another temp Dan dragged me there after our latest tech job evaporated.
