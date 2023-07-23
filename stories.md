@@ -28,15 +28,15 @@ The F train shrieks through lightless tunnels like a metal banshee slithering be
 
 A 24 year old man with a tie stares numbly at graffitied walls flashing by: Bush or Gore, red or blue — does it really matter? Suited figures peddle hope with practiced smiles, but nothing ever changes.
 
-I am a temp, building websites for greedy corporations to hawk useless crap - this reality follows me like a shadow. Trapped in the city's circuitry, my thoughts blur into a recursive swirl of doubt.
+I am a temp, building websites for greedy corporations to hawk useless crap. Trapped in the city's circuitry, my thoughts blur into a recursive swirl of doubt.
 
-I came here chasing a bubble, now my friends have become nothing but orphans to our shared objectives; our code, once a vibrant program destined to revolutionize, nothing more than a bug-riddled archive, a system crash of aspirations. As programmers the blinking cursor was once our greates inspiration, now it only ticks the time away. Shared laughter, camaraderie, dreams — all seem like echoes in an abandoned shell.
+I came here chasing a bubble, now my friends have become nothing but orphans to our shared objectives; our code, once a vibrant program destined to revolutionize, nothing more than a bug-riddled archive. The blinking cursor was once our greates inspiration, now it only ticks the time away. Laughter, camaraderie, dreams — all seem like echoes in an abandoned shell.
 
-My thoughts skip a beat as I emerge from the 14th Street crypt into November's frigid breath. Moonlight splashes coldly on uncaring steel and glass, turning them into jet-black mirrors. As I return to my senses I witness faceless drones marching the sidewalks, focused inward on their scripted routines - is there a purpose within my life-script?
+My thoughts skip a beat as I emerge from the 14th Street crypt into November's frigid breath. Moonlight splashes coldly on uncaring steel and glass, turning them into jet-black mirrors. In their reflection faceless drones march the sidewalks, focused inward on their scripted routines - is there a purpose within my life-script?
 
-Two man exchange cash for chemical escape. I turn away apathetically as buying drugs requires more motivation than I can summon.
+Two man exchange cash for chemical escape. Tempted but I turn away, as buying drugs requires more motivation than I can summon.
 
-My existence mirroring a stray pointer in a corrupted assembly, a lonely phantom disconnected from the world. A doomed process destined to crash?
+My existence mirrors a stray pointer in a corrupted assembly, a lone phantom disconnected from the system. A doomed process destined to crash?
 
 And then she appears — Emily. Like a glitch in the matrix, a rogue element within the monotone symphony. Her bright chaotic energy, sparks against the spectral indifference of the city and her existence, a thrilling deviance within my scripted narrative. She marks an unexpected break in my recursive despair.
 
