@@ -34,8 +34,6 @@ I came here chasing a bubble, but now my friends have become nothing but orphans
 
 My thoughts skip a beat as I emerge from the 14th Street crypt into November's frigid breath. Moonlight splashes coldly on uncaring steel and glass, turning them into jet-black mirrors. In their reflection, faceless drones march the sidewalks, focused inward on their scripted routines. Is there a purpose within my life-script?
 
-Two men exchange cash for chemical escape. Tempted, but I turn away; buying drugs requires more motivation than I can summon.
-
 My existence mirrors a stray pointer in corrupted assembly, a lone daemon disconnected from the system. A doomed process destined to crash?
 
 And then she appears—Emily. Like a glitch in the matrix, a rogue element within the monotone symphony. Her bright, chaotic energy sparks against the spectral indifference of the city. Her existence becomes a thrilling deviance within my scripted narrative.
