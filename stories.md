@@ -36,7 +36,7 @@ My thoughts skip a beat as I emerge from the 14th Street crypt into November's f
 
 My existence mirrors a stray pointer in corrupted assembly, a lone daemon disconnected from the system. A doomed process destined to crash?
 
-And then she appears—Emily. Like a glitch in the matrix, a rogue element within the monotone symphony. Her bright, chaotic energy sparks against the spectral indifference of the city. Her existence becomes a thrilling deviance within my scripted narrative.
+And then she appears—Emily. Like a glitch in the matrix, a rogue element within the monotone symphony. Her bright, chaotic energy sparks against the spectral indifference of the city. Her existence becomes a thrilling break within my scripted narrative.
 
 ## old
 The F train shrieks through lightless tunnels, a metal banshee slithering beneath Manhattan’s icy facade. Fluorescent light flickers hypnotically across blank faces. A pop song bleats tinnily from the headphones of a Walkman.
