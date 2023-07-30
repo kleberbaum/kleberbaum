@@ -24,24 +24,23 @@ The author and publisher hold no responsibility for any personal distress, upset
 
 ## [](#prologue)Prologue
 
-The F train shrieks through gloomy tunnels like a metal banshee. Fluorescent light flickers hypnotically across blank faces. A pop song bleats tinnily from the headphones of a passenger.
+The F train shrieks through gloomy tunnels like a metal banshee, its fluorescent lights flickering hypnotically across the blank faces of its passengers. A pop song bleats tinnily from someone's headphones.
 
-I stare numbly at the graffitied walls as we travel downtown. 
-Bush or Gore, red or blue — does it really matter? Suited figures peddle hope with practiced smiles, but nothing ever changes.
+I stare numbly at the graffitied walls as we travel downtown. Bush or Gore, red or blue—does it really matter? Suited figures peddle hope with practiced smiles, but nothing ever changes.
 
-As a 24 year old temp I waste my time building websites to hawk useless crap. Trapped in the city's circuitry, my thoughts fade into a recursive swirl of doubt.
+As a 24-year-old temp, I waste my time building websites to hawk useless crap. Am I supposed to do this till the end? Trapped in the city's circuitry, my thoughts dissolve into a recursive swirl of doubt.
 
-I came here chasing a bubble, now my friends have become nothing but orphans to our shared objectives; our code, once a vibrant program destined to revolutionize, nothing more than a bug-riddled archive. The blinking cursor our greates inspiration, now it only ticks the my time away. Laughter, camaraderie, dreams — all seem like echoes in an abandoned shell.
+I came here chasing a bubble, but now my friends have become nothing but orphans of our shared dreams; our code, once a vibrant program destined to revolutionize, is nothing more than a bug-riddled archive. The blinking cursor, once our greatest inspiration, now merely ticks my time away. Laughter, camaraderie, dreams—all seem like echoes in an abandoned shell.
 
-My thoughts skip a beat as I emerge from the 14th Street crypt into November's frigid breath. Moonlight splashes coldly on uncaring steel and glass, turning them into jet-black mirrors. In their reflection faceless drones march the sidewalks, focused inward on their scripted routines - is there a purpose within my life-script?
+My thoughts skip a beat as I emerge from the 14th Street crypt into November's frigid breath. Moonlight splashes coldly on uncaring steel and glass, turning them into jet-black mirrors. In their reflection, faceless drones march the sidewalks, focused inward on their scripted routines. Is there a purpose within my life-script?
 
-Two man exchange cash for chemical escape. Tempted but I turn away, buying drugs requires more motivation than I can summon.
+Two men exchange cash for chemical escape. Tempted, but I turn away; buying drugs requires more motivation than I can summon.
 
-My existence mirrors a stray pointer in a corrupted assembly, a lone daemon disconnected from the system. A doomed process destined to crash?
+My existence mirrors a stray pointer in corrupted assembly, a lone daemon disconnected from the system. A doomed process destined to crash?
 
-And then she appears — Emily. Like a glitch in the matrix, a rogue element within the monotone symphony. Her bright chaotic energy, sparks against the spectral indifference of the city and her existence, a thrilling deviance within my scripted narrative. She marks an unexpected break in my recursive despair.
+And then she appears—Emily. Like a glitch in the matrix, a rogue element within the monotone symphony. Her bright, chaotic energy sparks against the spectral indifference of the city. Her existence becomes a thrilling deviance within my scripted narrative.
 
-##old
+## old
 The F train shrieks through lightless tunnels, a metal banshee slithering beneath Manhattan’s icy facade. Fluorescent light flickers hypnotically across blank faces. A pop song bleats tinnily from the headphones of a Walkman.
 
 I stare numbly at graffitied walls flashing by: Bush or Gore, red or blue — does it really matter? Suited figures peddle hope with practiced smiles, but nothing ever changes. I remain a temp, selling my soul to hawk useless crap.
