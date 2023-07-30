@@ -29,7 +29,7 @@ The F train shrieks through gloomy tunnels like a metal banshee. Fluorescent lig
 I stare numbly at the graffitied walls as we travel downtown. 
 Bush or Gore, red or blue — does it really matter? Suited figures peddle hope with practiced smiles, but nothing ever changes.
 
-As a 24 year old temp I waste my time building websites to hawk useless crap. My thoughts fade into a recursive swirl of doubt.
+As a 24 year old temp I waste my time building websites to hawk useless crap. Trapped in the city's circuitry, my thoughts fade into a recursive swirl of doubt.
 
 I came here chasing a bubble, now my friends have become nothing but orphans to our shared objectives; our code, once a vibrant program destined to revolutionize, nothing more than a bug-riddled archive. The blinking cursor our greates inspiration, now it only ticks the my time away. Laughter, camaraderie, dreams — all seem like echoes in an abandoned shell.
 
